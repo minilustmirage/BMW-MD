@@ -1,6 +1,6 @@
 
 // BMW MD
-// MADE BY IBRAHIM ADAMS
+// MADE BY ~༺ღ༒𝐷𝛯𝛮𝐽𝛪-𝑆𝛥𝛮༒ღ༻
 
 // Plain space
 
